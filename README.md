@@ -1,1 +1,1 @@
-# Edici-Tallat
+# Edició-Tallat
